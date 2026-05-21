@@ -1,16 +1,16 @@
-## Hi there 👋
+# • Just-Introduction lol •
 
-<!--
-**PowerSiderS/PowerSiderS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+> **Welcome Guys 😁**
 
-Here are some ideas to get you started:
+My Name is **PowerSiderS** Known as a Modder CS Android x PC
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+• Working on **CloverXD/KiLiPRO** Communities and others
+• C++ Beginner 🔰 (Still Learnings)
+• Learning programming in general rn.
+
+> **Social Media**
+• YouTube: @moha_kun
+• Telegram: t.me/powersiders
+• Steam: PowerSiderS CS
+
+ ~ Thanks For Reading (⁠・⁠∀⁠・⁠) ~
