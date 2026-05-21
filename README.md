@@ -1,5 +1,3 @@
-# • Just-Introduction lol •
-
 > **Welcome Guys 😁**
 
 My Name is **PowerSiderS** Known as a Modder CS Android x PC
